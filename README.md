@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DavidFishBoy
-- 👀 I’m interested in you
-- 🌱 I’m currently learning how to land you 
-- 📫 How to reach me: Just love me
+- 👀 I’m interested in design
+- 🌱 I’m currently learning how to be the best desginer 
+- kkk
 
 <!---
 DavidFishBoy/DavidFishBoy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
