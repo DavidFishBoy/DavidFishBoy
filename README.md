@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @DavidFishBoy
 - 👀 I’m interested in you
-- 🌱 I’m currently learning how to land you <3
-- 💞 I love you girl
+- 🌱 I’m currently learning how to land you 
 - 📫 How to reach me: Just love me
 
 <!---
