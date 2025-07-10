@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DavidFishBoy
+- 👋 Hi, I’m @Charlotte
 - 👀 I’m interested in design
 - 🌱 I’m currently learning how to be the best desginer 
 - kkk
